@@ -1,0 +1,1 @@
+Earned a bachelor's in Computer and Information Science with experience creating, writing, and debugging various software. Looking for a role to grow and learn from experienced team members while drawing upon previous experiences and knowledge.
